@@ -7,8 +7,9 @@
     </td>
     <td>
            <p align="center">     
+evil half-undead <a href="https://github.com/Knox-Event">medkit</a> <br> 
 semi-active, i only play to chat with a few friends. <br>
-c+h enc, w2i at all times. i love my friends<br>
+c+h enc, w2i at all times. i love my friends <br>
 ponytown chronically online central <br>
                <a href="https://rentry.co/firstaidkit"> <img src= "https://i.postimg.cc/BZrDngXK/IMG-1575.png" style="width: 15%; height: auto;"> </a>
 <a href="https://medkit.atabook.org"> <img src="https://i.postimg.cc/sD5WQhh1/IMG-1576.png" style="width: 15%; height: auto;"> </a>
